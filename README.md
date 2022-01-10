@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cracker-TG 
+- 👋 Hi, I’m Winai Nickname Crack(แคร็ก)
 - 👀 I’m interested in ... English Language
 
 <!---
